@@ -1,3 +1,1 @@
-# Tu l'as dans le *cul*
-
-Pas Ã©vident de marcher les fesses serrÃ©e n'est ce pas? 
+"J'espere que tu ne l'a pas trop dans les fesses tu sais bien que je t'adore d‚j… :* <3" 
